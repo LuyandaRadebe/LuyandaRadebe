@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Computer Engineering.
 - 💞️ I’m looking to collaborate on projects and new things.
 - 📫 How to reach me: +27606569278
-- instagram: Luyanda Radebe/yourboy_luyanda
+- instagram: Luyandx_radebe
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm still new in this industry and I'm also willing to learn new things.
 
